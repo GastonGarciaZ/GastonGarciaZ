@@ -1,5 +1,5 @@
 Economist. Interested in macro and metrics.
-Mastering in economics in UdeSA.
+Mastering in economics at UdeSA.
 
 How to reach me: gzavaleta@udesa.edu.ar
 
