@@ -1,5 +1,5 @@
-Economist. Interested in macro and metrics
-Currently doing a master's degree in economics in UdeSA
+Economist. Interested in macro and metrics.
+Mastering in economics in UdeSA.
 
 How to reach me: gzavaleta@udesa.edu.ar
 
